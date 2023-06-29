@@ -1,0 +1,2 @@
+# Crypto78
+Scam
